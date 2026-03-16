@@ -9,7 +9,7 @@ Minimum three-month commitment
 Executive and board reporting participation
 
 **Investment:**  
-25,000 – 40,000 USD per month
+12,000 – 32,000 USD per month
 
 ## Duties and Responsibilities:
 
