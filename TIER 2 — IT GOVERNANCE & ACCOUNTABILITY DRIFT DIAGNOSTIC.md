@@ -8,7 +8,7 @@ Four-week structured executive assessment
 Executive interviews, KPI mapping, governance review, and board-ready reporting
 
 **Investment:**  
-18,000 – 30,000 USD per engagement
+10,000 – 25,000 USD per engagement
 
 ## Duties and Responsibilities:
 
