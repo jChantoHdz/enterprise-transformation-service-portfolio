@@ -9,7 +9,7 @@ Monthly executive retainer
 Bi-weekly executive governance sessions plus on-demand advisory support
 
 **Investment:**  
-7,000 – 10,000 USD per month
+4,000 – 10,000 USD per month
 
 ## Duties and Responsibilities:
 
