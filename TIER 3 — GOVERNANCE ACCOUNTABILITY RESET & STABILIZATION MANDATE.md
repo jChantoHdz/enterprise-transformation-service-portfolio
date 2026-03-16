@@ -8,7 +8,7 @@ Four to eight month executive-led stabilization mandate
 Structured milestone framework with board-level reporting
 
 **Investment:**  
-110,000 – 160,000 USD per engagement
+50,000 – 100,000 USD per engagement
 
 ## Duties and Responsibilities:
 
